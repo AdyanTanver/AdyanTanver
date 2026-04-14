@@ -1,5 +1,3 @@
-![views](https://img.shields.io/badge/views-2162-green)
-
 ## Hey! 👋 I'm Adyan,
 
 Emperor @ something new. Some fun facts about me:

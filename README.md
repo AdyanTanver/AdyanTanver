@@ -2,7 +2,7 @@
 
 ## Hey! 👋 I'm Adyan,
 
-Entrepreneur @ something new. Some fun facts about me:
+Emperor @ something new. Some fun facts about me:
 
 - 🕴️ I sneak into weddings for fun — haven't been caught yet
 - 🛬 I collect airline sick bags from every country I visit

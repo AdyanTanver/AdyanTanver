@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=AdyanTanver&color=green)
+![views](https://img.shields.io/badge/views-2162-green)
 
 ## Hey! 👋 I'm Adyan,
 
